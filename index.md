@@ -14,6 +14,10 @@ Dietmar ist ein gemütlicher Polizist.
 > Das ist ein Riesen-Unterschied! 
 
 
+<img src="http://magixc.info/wp-content/gallery/hoffest/1_Hoffest-003.jpg"/>
+
+
+
 
 
 
